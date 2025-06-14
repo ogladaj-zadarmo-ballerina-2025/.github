@@ -1,4 +1,4 @@
-## 𝐎𝐠𝐥ą𝐝𝐚𝐣]▷ Ballerina. Z uniwersum Johna Wicka 𝐜𝐚ł𝐲 𝐟𝐢𝐥𝐦 ZA DARMO PO POLSKU
+## 𝐎𝐠𝐥ą𝐝𝐚𝐣]▷ Ballerina. Z uniwersum Johna Wicka 𝐜𝐚ł𝐲 𝐟𝐢𝐥𝐦 za darmo po Polsku
 
 .github
 
